@@ -1,7 +1,7 @@
 Joseph McCullough
 =================
 
-This is what the world sees when they see me.
+This is what the world sees when it looks at me.
 
 ---
 
