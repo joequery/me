@@ -1,5 +1,5 @@
-Joseph McCullough
-=================
+Joe McCullough
+==============
 
 This the current snapshot of me.
 
